@@ -1,0 +1,1 @@
+without k ni kam kryach ok
